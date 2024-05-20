@@ -12,4 +12,4 @@ Meu nome é _Felipe_!
 
 galinhadatrivela@gmail.com
 
-![](https://media1.tenor.com/m/mHOvI449OaUAAAAC/jujutsu-kaisen-shibuya-arc-aoi-todo-shibuya-arc.gif)
+![](https://media.tenor.com/-OeTzBU0aZkAAAAi/parrot-minecraft.gif) ![](https://media1.tenor.com/m/mHOvI449OaUAAAAC/jujutsu-kaisen-shibuya-arc-aoi-todo-shibuya-arc.gif) ![](https://media.tenor.com/-OeTzBU0aZkAAAAi/parrot-minecraft.gif)
